@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ethan-fed
+- 🏋🏻‍♂️ I’m interested in Souls-like, Naruto, Lifting weights
+- 🎮 I’m currently learning Game Design!
+- 🫱🏻‍🫲🏻 I’m looking to collaborate on Games
