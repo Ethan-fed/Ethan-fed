@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @Ethan-fed
 - 🏋🏻‍♂️ I’m interested in Games, Lifting weights, and Dragonball
-- 🎮 I’m currently learning Game Design at Mohawk College!
-- 🫱🏻‍🫲🏻 I’m looking to collaborate on Games
+
